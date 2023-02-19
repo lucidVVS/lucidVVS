@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, i am lucid, i am currently working on Clipsense.<br>Ever wanted to flex on your friends and that your good? Get clipsense, can be used on two games.<br>Guaranteed to get you all the bitches, impress your friends and more!
+Hi, i am lucid, thats all i guess
 
 
 ## 🌐 Socials:
