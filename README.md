@@ -24,7 +24,7 @@
 
 ###
 
-<p align="left">I'm lucid, I'm from Belgium<br><br>- 📚 I'm currently working on a few projects..<br>- ⚡ I own a discord server! https://discord.gg/fzkQeNfkHx</p>
+<p align="left">I'm lucid<br><br>- 📚 I'm currently working on a few projects..<br>- ⚡ I have a discord server! https://discord.gg/fzkQeNfkHx</p>
 
 ###
 
